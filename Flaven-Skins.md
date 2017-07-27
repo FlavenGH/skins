@@ -24,3 +24,6 @@ Let me know if skins are missing/Links doesn't work!
 
 # [Bubbleman's skin with shige cursor?](https://flaven.iys.io/EOu0r1.osk) 
 ![](https://flaven.iys.io/sbdBQf.jpg)
+
+# [Mlaw22's skin](https://flaven.iys.io/Zfh5wv.osk)
+![](https://flaven.iys.io/WxrU6A.jpg)
