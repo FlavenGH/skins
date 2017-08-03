@@ -27,3 +27,6 @@ Let me know if skins are missing/Links doesn't work!
 
 # [Mlaw22's skin](https://flaven.iys.io/Zfh5wv.osk)
 ![](https://flaven.iys.io/WxrU6A.jpg)
+
+# [Vaxei's skin](http://puu.sh/uFJx9/27c88251e9.osk)
+![](https://flaven.iys.io/yREzRw.jpg)
