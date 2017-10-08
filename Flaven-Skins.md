@@ -30,3 +30,6 @@ Let me know if skins are missing/Links doesn't work!
 
 # [Vaxei's skin](http://puu.sh/uFJx9/27c88251e9.osk)
 ![](https://flaven.iys.io/yREzRw.jpg)
+
+# [Shige green cursor and weird green skin](https://flaven.iys.io/WCR6ld.osk)
+![](https://flaven.iys.io/7WougA.jpg)
