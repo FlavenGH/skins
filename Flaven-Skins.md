@@ -40,16 +40,18 @@ Let me know if skins are missing/Links doesn't work!
 # [Abyssal's skin](https://flaven.iys.io/YdWycZ.osk)
 ![](https://flaven.iys.io/XuRr8I.jpg)
 
-# [ikaNyai's skin? (private)](https://flaven.iys.io/LEvzOq.jpg)
+# [ikaNyai's skin? (private)]
+![](https://flaven.iys.io/LEvzOq.jpg)
 
-# [morgan's grey skin (private)](https://flaven.iys.io/ge0o4S.jpg)
+# [morgan's grey skin (private)]
+![](https://flaven.iys.io/ge0o4S.jpg)
 
-# [morgan's orange skin](https://flaven.iys.io/1UeQ7J.jpg)
-![](https://flaven.iys.io/XKg2iQ.osk)
+# [morgan's orange skin](https://flaven.iys.io/XKg2iQ.osk)
+![](https://flaven.iys.io/1UeQ7J.jpg)
 
-# [Karthy's DT skin](https://flaven.iys.io/eKek4B.jpg)
-![](https://flaven.iys.io/wy6mKG.osk)
+# [Karthy's DT skin](https://flaven.iys.io/wy6mKG.osk)
+![](https://flaven.iys.io/eKek4B.jpg)
 
-# [idke's skin](https://flaven.iys.io/T5cts3.jpg)
-![](https://flaven.iys.io/kCTbRT.osk)
+# [idke's skin](https://flaven.iys.io/kCTbRT.osk)
+![](https://flaven.iys.io/T5cts3.jpg)
 
