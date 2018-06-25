@@ -33,3 +33,23 @@ Let me know if skins are missing/Links doesn't work!
 
 # [Shige green cursor and weird green skin](https://flaven.iys.io/WCR6ld.osk)
 ![](https://flaven.iys.io/7WougA.jpg)
+
+# [Xilver's skin](https://flaven.iys.io/mbKP5g.osk)
+![](https://flaven.iys.io/mgsLJw.jpg)
+
+# [Abyssal's skin](https://flaven.iys.io/YdWycZ.osk)
+![](https://flaven.iys.io/XuRr8I.jpg)
+
+# [ikaNyai's skin? (private)](https://flaven.iys.io/LEvzOq.jpg)
+
+# [morgan's grey skin (private](https://flaven.iys.io/ge0o4S.jpg)
+
+# [morgan's orange skin](https://flaven.iys.io/1UeQ7J.jpg)
+![](https://flaven.iys.io/XKg2iQ.osk)
+
+# [Karthy's DT skin](https://flaven.iys.io/eKek4B.jpg)
+![](https://flaven.iys.io/wy6mKG.osk)
+
+# [idke's skin](https://flaven.iys.io/T5cts3.jpg)
+![](https://flaven.iys.io/kCTbRT.osk)
+
