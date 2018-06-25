@@ -42,7 +42,7 @@ Let me know if skins are missing/Links doesn't work!
 
 # [ikaNyai's skin? (private)](https://flaven.iys.io/LEvzOq.jpg)
 
-# [morgan's grey skin (private](https://flaven.iys.io/ge0o4S.jpg)
+# [morgan's grey skin (private)](https://flaven.iys.io/ge0o4S.jpg)
 
 # [morgan's orange skin](https://flaven.iys.io/1UeQ7J.jpg)
 ![](https://flaven.iys.io/XKg2iQ.osk)
