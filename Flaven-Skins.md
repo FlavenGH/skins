@@ -7,7 +7,7 @@ Let me know if skins are missing/Links doesn't work!
 
 # Some of the skins im using might be private and is not listed here!
 
-# [Yaong's Skin](https://puu.sh/t6HtJ/7476506810.osk) 
+# [Yaong's Skin](https://fastmanmonko.s-ul.eu/Zr2E0eb7) 
 ![](https://flaven.iys.io/QwVBWO.jpg)
 
 # [Shige's latest skin?](https://flaven.iys.io/4U32jp.osk) 
