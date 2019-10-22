@@ -28,7 +28,7 @@ Let me know if skins are missing/Links doesn't work!
 # [Mlaw22's skin](https://flaven.iys.io/Zfh5wv.osk)
 ![](https://flaven.iys.io/WxrU6A.jpg)
 
-# [Vaxei's skin](http://puu.sh/uFJx9/27c88251e9.osk)
+# [Vaxei's skin](https://joofixd.s-ul.eu/Gq2lH4N4)
 ![](https://flaven.iys.io/yREzRw.jpg)
 
 # [Shige green cursor and weird green skin](https://flaven.iys.io/WCR6ld.osk)
