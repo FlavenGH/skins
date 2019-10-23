@@ -7,51 +7,54 @@ Let me know if skins are missing/Links doesn't work!
 
 # Some of the skins im using might be private and is not listed here!
 
-# [Yaong's Skin](https://fastmanmonko.s-ul.eu/Zr2E0eb7) 
+# [17](https://f.iys.io/30l4jX.zip)
+![](https://f.iys.io/1wR9Y0.jpg)
+
+# [16](https://fastmanmonko.s-ul.eu/Zr2E0eb7) 
 ![](https://flaven.iys.io/QwVBWO.jpg)
 
-# [Shige's latest skin?](https://flaven.iys.io/4U32jp.osk) 
+# [15](https://flaven.iys.io/4U32jp.osk) 
 ![](https://flaven.iys.io/mauxg2.jpg)
 
-# [filsdelama's skin?](http://puu.sh/v14aa/aac80ff3db.osk) 
+# [14](http://puu.sh/v14aa/aac80ff3db.osk) 
 ![](https://flaven.iys.io/mCtf2M.jpg)
 
-# [shige dt skin?](https://flaven.iys.io/31r9BJ.osk) 
+# [13](https://flaven.iys.io/31r9BJ.osk) 
 ![](https://flaven.iys.io/3fUii3.jpg)
 
-# [Rucker's skin](https://puu.sh/uF8pE.osk) 
+# [12](https://puu.sh/uF8pE.osk) 
 ![](https://flaven.iys.io/JjHX6P.jpg)
 
-# [Bubbleman's skin with shige cursor?](https://flaven.iys.io/EOu0r1.osk) 
+# [11](https://flaven.iys.io/EOu0r1.osk) 
 ![](https://flaven.iys.io/sbdBQf.jpg)
 
-# [Mlaw22's skin](https://flaven.iys.io/Zfh5wv.osk)
+# [10](https://flaven.iys.io/Zfh5wv.osk)
 ![](https://flaven.iys.io/WxrU6A.jpg)
 
-# [Vaxei's skin](https://joofixd.s-ul.eu/Gq2lH4N4)
+# [9](https://joofixd.s-ul.eu/Gq2lH4N4)
 ![](https://flaven.iys.io/yREzRw.jpg)
 
-# [Shige green cursor and weird green skin](https://flaven.iys.io/WCR6ld.osk)
+# [8](https://flaven.iys.io/WCR6ld.osk)
 ![](https://flaven.iys.io/7WougA.jpg)
 
-# [Xilver's skin](https://flaven.iys.io/mbKP5g.osk)
+# [7](https://flaven.iys.io/mbKP5g.osk)
 ![](https://flaven.iys.io/mgsLJw.jpg)
 
-# [Abyssal's skin](https://flaven.iys.io/YdWycZ.osk)
+# [6](https://flaven.iys.io/YdWycZ.osk)
 ![](https://flaven.iys.io/XuRr8I.jpg)
 
-# ikaNyai's skin? (private)
+# 5 (private)
 ![](https://flaven.iys.io/LEvzOq.jpg)
 
-# morgan's grey skin (private)
+# 4 (private)
 ![](https://flaven.iys.io/ge0o4S.jpg)
 
-# [morgan's orange skin](https://flaven.iys.io/XKg2iQ.osk)
+# [3](https://flaven.iys.io/XKg2iQ.osk)
 ![](https://flaven.iys.io/1UeQ7J.jpg)
 
-# [Karthy's DT skin](https://flaven.iys.io/wy6mKG.osk)
+# [2](https://flaven.iys.io/wy6mKG.osk)
 ![](https://flaven.iys.io/eKek4B.jpg)
 
-# [idke's skin](https://flaven.iys.io/kCTbRT.osk)
+# [1](https://flaven.iys.io/kCTbRT.osk)
 ![](https://flaven.iys.io/T5cts3.jpg)
 
