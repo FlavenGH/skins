@@ -5,6 +5,9 @@ Click on the skin name to download. If the download does not start or displays s
 
 Let me know if skins are missing/Links doesn't work!
 
+# [18](https://f.iys.io/kablaze2019.osk)
+![](https://f.iys.io/pRsawV.jpg)
+
 # [17](https://f.iys.io/30l4jX.zip)
 ![](https://f.iys.io/1wR9Y0.jpg)
 
