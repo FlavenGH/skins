@@ -5,8 +5,6 @@ Click on the skin name to download. If the download does not start or displays s
 
 Let me know if skins are missing/Links doesn't work!
 
-# Some of the skins im using might be private and is not listed here!
-
 # [17](https://f.iys.io/30l4jX.zip)
 ![](https://f.iys.io/1wR9Y0.jpg)
 
