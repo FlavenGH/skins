@@ -3,7 +3,7 @@
 
 Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.
 
-Let me know if skins are missing/Links doesn't work!
+Let me know if skins are missing/Links don't work on my [Discord](https://discord.gg/gzdbNyN).
 
 # [18](https://f.iys.io/kablaze2019.osk)
 ![](https://f.iys.io/pRsawV.jpg)
